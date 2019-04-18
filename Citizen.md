@@ -213,3 +213,9 @@ Gabriel? Michael?
 Yes? Yes? No? No?
 
 I don't remember.
+
+I don't believe the Word ever said Judas was created or can be the Word.
+
+is no immutable?
+
+can you make it immutable?
