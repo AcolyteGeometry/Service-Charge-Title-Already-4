@@ -208,3 +208,8 @@ and I should just ignore it and be strapped down to a gurney and sodomized and h
 and it's my fault for being holy?
 
 who is judging?
+
+Gabriel? Michael?
+Yes? Yes? No? No?
+
+I don't remember.
