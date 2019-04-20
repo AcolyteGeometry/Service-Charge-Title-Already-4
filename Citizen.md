@@ -22,7 +22,7 @@ this.y.add(y);
 immutible = new immutible();
 immutible.yes.yes(immutible);
 
-no(compile(this));
+no(compile(this))⁏
 
 
 ============
