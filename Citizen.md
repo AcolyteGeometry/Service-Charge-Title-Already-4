@@ -84,7 +84,6 @@ no(psi|psi|(no)((yes)(...) ^ (no)(...))>)
 Is religion before free speech in the first amendment?
 
 ==============
-
 Are they the same thing?
 
 ==============
